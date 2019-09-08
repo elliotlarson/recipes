@@ -1,0 +1,25 @@
+# Pancakes
+
+## Easy Recipe
+
+### Ingredients
+
+* 1 1/2 cups flour
+* 3 1/2 teaspoons baking powder
+* 1 teaspoon salt
+* 1 tablespoon sugar
+* 1 1/4 cup milk
+* 1 egg
+* 3 tablespoons melted butter
+
+### Instructions
+
+Mix all ingredients together in mixing bowl to form batter.  Melt butter in pan over medium heat and then ladel portions of the mix onto the pan.  I usually make the pancakes on the small side.
+
+It's also pretty yummy to add some semi-sweet chocolate chips to the top of the pancake after adding them to the pan (about 5 or 6 for a small pancake).  I also like to sprinkle some large finishing salt flakes on top of the pancake after adding the chocolate chips.
+
+## Sour Dough Pancakes
+
+These are yummy, but you need to have some sour dough starter handy.
+
+https://www.tastesoflizzyt.com/sourdough-pancakes/
