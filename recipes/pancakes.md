@@ -14,9 +14,11 @@
 
 ### Instructions
 
-Mix all ingredients together in mixing bowl to form batter.  Melt butter in pan over medium heat and then ladel portions of the mix onto the pan.  I usually make the pancakes on the small side.
+Mix all ingredients together in mixing bowl to form batter.  Melt butter in pan over medium heat and then ladle portions of the mix onto the pan.  I usually make the pancakes on the small side.
 
 It's also pretty yummy to add some semi-sweet chocolate chips to the top of the pancake after adding them to the pan (about 5 or 6 for a small pancake).  I also like to sprinkle some large finishing salt flakes on top of the pancake after adding the chocolate chips.
+
+If you have buttermilk handy you can swap out the milk for buttermilk.  This gives it some extra flavor.  If you don't have buttermilk on hand, you can add in a touch of white vinegar to add a similar amount of acid in the buttermilk (tip from Marilyn Nergord), however I haven't tried this yet.  Need to figure out how much a "touch" is.
 
 ## Sour Dough Pancakes
 
