@@ -1,7 +1,5 @@
 # Chili Recipe
 
-This is a home grown recipe
-
 ## Ingredients
 
 * 1 medium red onion minced

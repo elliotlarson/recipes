@@ -1,7 +1,5 @@
 # Mild Cold Noodle Soup (Mul-naengmyeon)
 
-If you live somewhere like LA where you have easy access to a naengmyeon restaurant (I mean an actual restaurant that specializes in naengmyeon, not just a Korean restaurant that sells it), go there and get that.  It's pretty amazing.  If you don't have access, take a crack yourself.  The homemade kimchi brine and brisket broth alone will put a packaged naengmyeon to shame.
-
 **Serves 2**
 
 This ice-cold noodle soup is so refreshing that I. could eat it every day in the summertime. Try it, and you will feel your body temperature cool right down. It is a little tangy from the fermented radish broth, a little sweet from the pear, and rich and meaty from the brisket. I like it best when the broth is almost frozen but still slushy. You’ve probably never had anything like it, and once you taste it, you will be hooked.
