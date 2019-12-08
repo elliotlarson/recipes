@@ -1,5 +1,22 @@
 # Pasta
 
+## Lidia's recipe
+
+* 2 cups flour
+* 1 large egg yoke
+* 3 eggs
+* 1 tbl spn of olive oil
+
+1. Put flour in large bowl and create a well in the middle for wet ingredients
+1. Wisk the eggs and olive oil together
+1. Pour eggs and olive oil into flour well and use a fork to start to mix
+1. Once the dough has formed a ball in the bowl, take out and kneed with hands for about 5 min, introducing more water or flour depending
+1. Make a disk, cover with saran wrap, and let sit for 30 min
+1. Cut dough into 4 pieces.  For each, make a flat piece and run through the pasta maker several times on each successive thinness setting
+
+
+## Mom's recipe
+
 * Semolina flour 146 grams
 * Double O flour 111 grams
 * Eggs 120 grams (about 2 1/2 eggs)
