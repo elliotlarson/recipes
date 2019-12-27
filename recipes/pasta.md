@@ -14,7 +14,6 @@
 1. Make a disk, cover with saran wrap, and let sit for 30 min
 1. Cut dough into 4 pieces.  For each, make a flat piece and run through the pasta maker several times on each successive thinness setting
 
-
 ## Mom's recipe
 
 * Semolina flour 146 grams
