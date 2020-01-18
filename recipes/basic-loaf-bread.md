@@ -2,12 +2,23 @@
 
 ## Ingredients
 
+### Full recipe
+
 * 1 package (1/4 ounce) active dry yeast (2.25 teaspoons)
 * 2-1/4 cups warm water (110° to 115°)
-* 3 tablespoons sugar plus 1/2 teaspoon sugar
-* 1 tablespoon salt
-* 2 tablespoons canola oil
+* 3 tbsp sugar plus 1/2 tsp sugar
+* 1 tbsp salt
+* 2 tbsp canola oil
 * 6-1/4 to 6-3/4 cups bread flour
+
+### Half recipe
+
+* 1 1/8 tsp active dry yeast
+* 1 1/8 cups warm water (110° to 115°)
+* 1 1/2 tbsp + 1/2 tsp  sugar
+* 3/4 tbsp salt
+* 1 tbsp canola oil
+* 3 1/2 cups bread flour
 
 ## Directions
 
