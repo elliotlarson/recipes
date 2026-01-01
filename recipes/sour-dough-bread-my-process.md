@@ -6,7 +6,7 @@ Discard all but a small amount.  I've been feedding once a day at night.  That w
 
 * 75 grams bread flour 
 * 25 grams rye flour 
-* 100 grams water
+* 100 grams water (distilled)
 
 If you are hybernating the starter in the fridge, take the starter out and feed for about 3 days to bring it back to active state. 
 
